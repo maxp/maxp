@@ -1,4 +1,4 @@
-### ... working from home 😄
+### head of AI agents team 😄
 
 <!--
 **maxp/maxp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
